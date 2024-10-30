@@ -1,5 +1,4 @@
 # Cooltory228
-![13инд](https://github.com/user-attachments/assets/69d32f97-1842-4347-9e53-19965ccf18be)
 ![20](https://github.com/user-attachments/assets/8857234d-9e6e-406f-8ffc-7fb92f189dfc)
 ![19](https://github.com/user-attachments/assets/d83a87a4-6504-4d61-bee3-302fab6817cf)
 ![18](https://github.com/user-attachments/assets/d816b996-6838-475d-85e2-e91dced47e5f)
